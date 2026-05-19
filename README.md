@@ -115,6 +115,7 @@ Black Friday (November) and New Year promotions offer the deepest discounts. For
 - 👉 [Base44 Coupon Code 2026](https://github.com/partners-png/Base44-Coupon-Code-2026) — AI no-code app builder
 - 👉 [Base44 Agent Coupon Code 2026](https://github.com/partners-png/Base44-Agent-Coupon-Code-2026) — AI Superagents platform
 - 👉 [Wix Coupon Code 2026](https://github.com/partners-png/Wix-Coupon-Code-2026) — Wix website builder
+- 👉 [All No-Code Discount Codes 2026](https://github.com/partners-png/No-Code-Discount-Codes-2026) — every code in one place
 
 ---
 
