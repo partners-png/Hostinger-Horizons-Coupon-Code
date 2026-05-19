@@ -109,10 +109,12 @@ Black Friday (November) and New Year promotions offer the deepest discounts. For
 
 ## More Discount Codes
 
-- 👉 [Hostinger Website Builder Coupon 2026](https://github.com/partners-png/Hostinger-Website-Builder-Coupon-Code) — drag-and-drop site builder
 - 👉 [Hostinger VPS Coupon 2026](https://github.com/partners-png/Hostinger-VPS-Coupon-Code) — KVM VPS for developers & AI agents
-- 👉 [Hostinger Coupon Codes 2026](https://github.com/partners-png/Hostinger-Coupon-Codes-2026) — all products in one page
+- 👉 [Hostinger Website Builder Coupon 2026](https://github.com/partners-png/Hostinger-Website-Builder-Coupon-Code) — drag-and-drop site builder
+- 👉 [Hostinger Coupon Codes 2026](https://github.com/partners-png/Hostinger-Coupon-Codes-2026) — all Hostinger products in one page
 - 👉 [Base44 Coupon Code 2026](https://github.com/partners-png/Base44-Coupon-Code-2026) — AI no-code app builder
+- 👉 [Base44 Agent Coupon Code 2026](https://github.com/partners-png/Base44-Agent-Coupon-Code-2026) — AI Superagents platform
+- 👉 [Wix Coupon Code 2026](https://github.com/partners-png/Wix-Coupon-Code-2026) — Wix website builder
 
 ---
 
